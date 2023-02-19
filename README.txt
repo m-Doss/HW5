@@ -1,2 +1,0 @@
-Malek Aldoss
-Real Madrid
